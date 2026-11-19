@@ -12,6 +12,6 @@
 <img width="350" height="40" src="https://cdn.discordapp.com/attachments/1516461217668141077/1572806964570750986/Untitled1426_20261118205246.png?ex=6affb621&is=6afe64a1&hm=79abdf7f718396979936474d669d77f60b008e5d98d115083953f7e083680bf6" />
 
 <br>
-<p>c + w encouraged always, especially if youre in the same fandom as one of my ponies :D !</p>
+<p>c + h encouraged always, especially if youre in the same fandom as one of my ponies :D !</p>
  <img width="600" height="5" src="https://cdn.discordapp.com/attachments/1516461217668141077/1572809415306776648/883x70.webp?ex=6affb869&is=6afe66e9&hm=30f6b3c2dda3f55add2a718291699b7998919bec1aca4b8440d39a36dbb0d2b9" />
 </pre>
